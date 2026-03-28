@@ -79,3 +79,5 @@ Jun 2023 – Aug 2023
 ## 05 · Skills
 
 `Marketing Planning` `Social Media Marketing` `B2B Marketing` `B2C Marketing` `Business English`
+
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-000000?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/se-uk-kim-marketing/)
