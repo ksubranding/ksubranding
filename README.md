@@ -85,3 +85,6 @@ Jun 2023 – Aug 2023
 **Click My LinkedIn!**
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/se-uk-kim-marketing/)
+
+**Click My Projects!**
+
