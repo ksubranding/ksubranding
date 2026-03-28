@@ -88,3 +88,4 @@ Jun 2023 – Aug 2023
 
 **Click My Projects!**
 
+[![Projects](https://img.shields.io/badge/Projects-4A9BD9?style=for-the-badge&logoColor=white)](https://github.com/ksubranding/ksubranding/tree/main/Projects)
