@@ -23,7 +23,7 @@ Specializing in marketing planning, content creation, and end-to-end campaign ma
 | **Global Communication** | Experienced in cross-cultural collaboration, working seamlessly with international teams and buyers. |
 | **Customer-First Mindset** | Always pursue what the customer genuinely wants. Always prioritize direct interviews and hands-on research to uncover exactly what they need. |
 
-> *Always open to connecting and exploring new opportunities. I look forward to working with you!*
+Always open to connecting and exploring new opportunities. I look forward to working with you!
 
 ---
 
